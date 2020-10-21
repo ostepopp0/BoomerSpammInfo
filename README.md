@@ -1,5 +1,3 @@
-<h1>Boomer spamm info</h1>
-<h2>Boomers er det samme som Pang-sjonister</h2>
-<h3>Denne nettsiden kommer til å være 100% dedikert til BoomerSpamm
-  og jeg kommer til å gjøre alt i min makt til å legge ut så mye
-  og så masse av høyest kvalitet BoomerSpamm</h3>
+<h1>Hvorfor Er Thomas "A Waste Of Space"</h1>
+<h2>Thomas is a coplete waste of atoms</h2>
+<h3>The atoms and recources Thomas uses are a total waste by beenig used on him. Instead of laying on a landfill they are in his possesion wich makes everyone sad.</h3>
